@@ -2,7 +2,7 @@
 - 👀 I’m interested in lots of different things, including knit work, cooking, and designing.
 - 🌱 I’m currently learning new design skills like portfolio making, but outside of school, I am learning how to knit a sweater.
 - 💞️ I’m looking to collaborate on new design products.
-- 📫 How to reach me: nguy4591@umn.edu or lynds.design.studio.gmail.com
+- 📫 How to reach me: nguy4591@umn.edu or lynds.design.studio@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I can knit without looking.
 
